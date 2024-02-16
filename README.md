@@ -1,16 +1,12 @@
-### Hi there 👋
-
-<!--
-**Puyyyo/Puyyyo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on no
-- 🌱 I’m currently learning ?
-- 👯 I’m looking to collaborate on ?
-- 🤔 I’m looking for help with ?
-- 💬 Ask me about ?
-- 📫 How to reach me: nthg
-- 😄 Pronouns: ...
-- ⚡ Fun fact: I am a student 
--->
+✧⁠◝⁠(•⁠▿•)⁠◜⁠✧ hella-!
+the name is rya/lupy
+<!--16+
+- ✧ free to cud in pt
+- 🌱 I’m currently learning about astronomy 
+- I’m a sanji and zoro simp
+- 💬 Ask me about one piece-!
+-  How to reach me: nthg
+-  Pronouns: she/her
+- ☆ Fun fact: I am a student-!
+- ಡ i may be slow respond cuz busy and i often afk
+-im a childish and a bit annoying sometimes.
